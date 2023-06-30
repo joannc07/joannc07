@@ -8,20 +8,20 @@
 
 -Estudo no Senac Distrito Criativo- 
 
--Estou cursando Técnico em Informática para internet integrado ao Ensino Médio- 
+-Estou cursando Técnico em Informática para internet integrado ao Ensino Médio- 💻
 
--Atualmente aprendendo HTML e CSS-
+-Atualmente aprendendo HTML e CSS- 
 
 
 <h3>Curiosidades</h3>
 
--Gosto de Comida italiana e japonesa-
+-Gosto de Comida italiana e japonesa-  🍕 🍣
 
 -Torcedor e sofredor colorado-
 
--Gostaria de viajar o mundo-
+-Gostaria de viajar o mundo-  🌎
 
--tenho dois gatinhos que se chamam Becket e Cora-
+-tenho dois gatinhos que se chamam Becket e Cora- 
 
 
 
