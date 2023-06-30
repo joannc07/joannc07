@@ -17,6 +17,7 @@
 
 -Gosto de Comida italiana e japonesa-
 
+-Torcedor e sofredor colorado-
 
 -tenho dois gatinhos que se chamam Becket e Cora-
 
