@@ -19,10 +19,11 @@
 
 -Torcedor e sofredor colorado-
 
+-Gostaria de viajar o mundo-
+
 -tenho dois gatinhos que se chamam Becket e Cora-
 
 
--Sou torcedor e sofredor colorado-
 
 
 
