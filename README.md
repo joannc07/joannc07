@@ -4,7 +4,7 @@
 
 -Tenho 15 anos- 
 
--Moro em Porto Alegre- 
+-Moro em Porto Alegre, RS- 
 
 -Estudo no Senac Distrito Criativo- 
 
