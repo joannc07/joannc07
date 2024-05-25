@@ -2,7 +2,7 @@
 
 -Sou o Joan- 
 
--Tenho 15 anos- 
+-Tenho 16 anos- 
 
 -Moro em Porto Alegre, RS- 
 
