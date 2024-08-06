@@ -10,7 +10,7 @@
 
 -Estou cursando Técnico em Informática para internet integrado ao Ensino Médio- 
 
--Atualmente aprendendo HTML, CSS e python-
+-Atualmente aprendendo HTML, CSS e Python-
 
 <img src="https://media.giphy.com/media/1eEH7dQ2xwN95RwGQf/giphy.gif">
 
